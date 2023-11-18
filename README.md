@@ -1,6 +1,5 @@
 # 2023 Retail Investors' Focus
  Which Investment strategies or themes are you interested in as part of your overall portfolio?
-
  Wondering How Dividend Investing Work?
 
  - Dividends are the investors' share of a company's profit. They are a good source of passive income if you are considering having multiple straems of income
