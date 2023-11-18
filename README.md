@@ -11,7 +11,7 @@
 
  - As a bonus, dividend stocks typically are less voaltile than growth stocks, so they can help you diversify and even stabilize your investment portfolios
 
- - CWhich Investment strategies or themes are you interested in as part of your overall portfolio?
+ - Which Investment strategies or themes are you interested in as part of your overall portfolio?
 
 
  - Data Source: Public's 2023 Retail Investor Report which surveyed 1,005 retail investors
