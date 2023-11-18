@@ -1,5 +1,5 @@
 # 2023 Retail Investors' Focus
- Check out the dividend investing retail investors are focusing on in 2023 💲💱💲
+ Which investment strategies or themes are interested in as part of your overall portfolio strategy?
 
  Wondering How Dividend Investing Work?
 
@@ -11,7 +11,7 @@
 
  - As a bonus, dividend stocks typically are less voaltile than growth stocks, so they can help you diversify and even stabilize your investment portfolios
 
- - Which Investment strategies or themes are you interested in as part of your overall portfolio?
+ - Check out the dividend investing retail investors are focusing on in 2023 💲
 
 
  - Data Source: Public's 2023 Retail Investor Report which surveyed 1,005 retail investors
