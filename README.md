@@ -1,5 +1,5 @@
 # 2023 Retail Investors' Focus
- Check out the dividend investing retail investors are focusing on in 2023
+ Check out the dividend investing retail investors are focusing on in 2023 💲💱💲
 
  Wondering How Dividend Investing Work?
 
